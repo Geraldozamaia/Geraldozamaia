@@ -1,5 +1,5 @@
 # SOBRE MIM
-.- 👋 Oi, eu sou @Gerldozamaia
+.- 👋 Oi, eu sou @GeraldoZamaia
 
 
 .-👍
