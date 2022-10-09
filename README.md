@@ -1,5 +1,8 @@
-.- 👋 Hi, I’m @Geraldozamaia
-#Sobre mim#
+# SOBRE MIM
+.- 👋 Oi, eu sou @Gerldozamaia
+
+
+.-👍
 - 👀 I’m interested in  aprender sobre progração e robótica para adicionar novas metodologias  às minhas aulas.
 - 💞️ I’m looking to collaborate on em novos métodos de aprendizagem.
 - 📫 How to reach me: geraldo.zamaia@seed.pr.gov.br.
